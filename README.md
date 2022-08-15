@@ -1,4 +1,11 @@
-### Hi there 👋
+i´m naomi, gastronomia <3
+
+bem-vinde ao meu perfil
+
+algumas coisas que gosto;
+-livros- meu livro favorito e fada dos lobos<3
+- amante de gatos
+
 
 <!--
 **pr3ttynaomi/pr3ttynaomi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
