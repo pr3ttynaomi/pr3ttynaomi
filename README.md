@@ -5,6 +5,9 @@ bem-vinde ao meu perfil
 algumas coisas que gosto;
 -livros- meu livro favorito e fada dos lobos<3
 - amante de gatos
+amo casos criminais e tudo que envolva humanas
+(l)gbt- elu/delu 
+gosto musical; kpop, pop, rock, metal <3
 
 
 <!--
